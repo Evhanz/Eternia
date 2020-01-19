@@ -24,10 +24,7 @@ y sin querer de la nada se formó una moda y hasta una nueva religión , al tene
 # Capitulo 1 : codigo 0
 
 (Bostezo) ...
-
 unas cortinas se abren automaticamente ...
-
 zhyii zhyii ... 000100 0010 0001 ....
-
 Doc!! ... Doc!! ... es hora de despertar!!! - un pequeño droid se acerca a la cama del Dr. Zero tratando de despertarlo .
 ok ok z
